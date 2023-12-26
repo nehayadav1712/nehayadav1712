@@ -1,6 +1,6 @@
 # Hey there, I'm Neha Yadav 👋
 
-21 years young and on a data-driven adventure! 📊
+22 years young and on a data-driven adventure! 📊
 
 ## About Me
 
